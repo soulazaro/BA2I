@@ -1,0 +1,1 @@
+Crie uma imagem no formato 01:01 para um podcast que tem o nome de BA2I, o tema dele é sobre análise de negócios e inteligência artificial. Então a imagem precisa ter referências de IA com Análise com detalhe minimalista
